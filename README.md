@@ -1,3 +1,7 @@
 # Hello-World
-Just Try
+
+Hey Humans!
+
+Just Try..
+
 I dont really know how to use this sucks
